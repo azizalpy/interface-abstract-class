@@ -1,1 +1,1 @@
-Turkcell Geleceği Yazanlar Ödev-2
+Turkcell Geleceği Yazanlar 2024 Ödev-2
